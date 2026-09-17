@@ -1,0 +1,1 @@
+Shazzy Cake & Surprise website. Four services only: Cakes & Pastries; Surprise Packages; Gift Hampers; Delivery & Surprise Setup. Replace placeholder phone, email, location and images before publishing.
